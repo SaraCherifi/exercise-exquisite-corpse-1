@@ -11,3 +11,6 @@ Sa fille est donc allée à son chevet pour lui demander si il avait besoin d'un
 Elle s'ecria : *Père ! Veux tu un joli poney rose ?*
 Et elle s'en alla acheter des frittes.
 
+C'est une assez belle histoire et l'on sait tous que quand ça parle de frittes les julilères ne sont pas loin !
+*Sans boire on arrive à avoir la tête qui tourne grace au terminal*
+..* __fort__   
