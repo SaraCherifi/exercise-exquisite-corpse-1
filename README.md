@@ -13,4 +13,8 @@ Et elle s'en alla acheter des frittes.
 
 C'est une assez belle histoire et l'on sait tous que quand ça parle de frittes les julilères ne sont pas loin !
 *Sans boire on arrive à avoir la tête qui tourne grace au terminal*
-..* __fort__   
+..* __fort__    
+
+Du coups les enfant qu'elle est la moral de l'histoire?  
+
+C'est simple,les narrateurs de cette histoire sont soit en surplus de frittes soit en excès de git ;)
